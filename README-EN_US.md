@@ -15,7 +15,7 @@ These are the public credentials for everyone to try out for free.
 > 1. Please do not use the public account as your main account.
 > 2. Do not change the password. If found, the IP will be banned.
 > 3. This account's prize pool and password will be reset from time to time.
-> 4. Enjoy! If you need a private account, please contact "WeChat: 13503501032".
+> 4. Enjoy! If you need a private account, please contact "Bilibili:白米不是笨蛋".
 
 ---
 
